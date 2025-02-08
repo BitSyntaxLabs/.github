@@ -52,7 +52,7 @@ We leverage the latest tools and technologies to deliver high-quality solutions.
 
 ## 📩 Get in Touch
 
-📧 Email: help.dreamweb@gmail.com
+📧 Email: bitsyntax.labs@gmail.com
 
 🌐 Website: under development!
 
